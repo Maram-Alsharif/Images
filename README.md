@@ -1,1 +1,1 @@
-![Purple and Pink Gamer Girl Animated Logo (4)](https://user-images.githubusercontent.com/107946222/208265329-0a28e0d6-bd10-4893-b151-494c9a9b6062.gif)
+![Web Design Portfolio Presentation in Pink Purple Orange Digitalism Style](https://user-images.githubusercontent.com/107946222/209376378-f7544605-c6c3-40de-a389-437825d15dda.gif)
